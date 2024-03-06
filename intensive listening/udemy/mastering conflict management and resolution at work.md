@@ -1,0 +1,5 @@
+accommodate
+compete
+collaborate
+comprimise
+avoid
