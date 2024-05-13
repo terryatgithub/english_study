@@ -1,0 +1,12 @@
+almost
+currently
+directly
+espectively
+efficiently
+originally
+s
+professionally
+rapidly
+regularly
+scarcely
+virtually
